@@ -6,3 +6,5 @@ July 24 2020  Call the local 12345 political hotline, asked to public all the re
 July 24 2020  10 minutes later, I received a call that told me how to "apply for make something public" , yes there is such channel on the website, but I changed my requirement to be "want an explanation why the gov chose to hide the detail information of representitives".
 
 Aug 6 2020, Well, I didn't receive any call back from the 12345, good, very good.
+
+2020-9-11 反应了一个道路建设方面问题，路口遮挡物有安全隐患。
