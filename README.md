@@ -8,3 +8,6 @@ July 24 2020  10 minutes later, I received a call that told me how to "apply for
 Aug 6 2020, Well, I didn't receive any call back from the 12345, good, very good.
 
 2020-9-11 反应了一个道路建设方面问题，路口遮挡物有安全隐患。
+
+2020-10-14 联系了市政热线，要求在广电系统里多开设科普类节目。山东台给人的印象就是一个大号农村台，山东的思维太落后了。做一个公民该做的。罗永浩：我的小区冬天取暖达不到规定温度，我和小区论坛的刺头天天去磨物业和开发商，一个月后终于同意加锅炉。 后来看到一傻逼在论坛说，屋里变温暖了，其实大家不必抱怨，要相信生活会变好。
+
